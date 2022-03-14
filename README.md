@@ -1,1 +1,0 @@
-# ERP-on-institute-management.github.io
